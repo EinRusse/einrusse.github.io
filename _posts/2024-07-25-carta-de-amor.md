@@ -11,17 +11,17 @@ Sempre tive a ausência da necessidade de romantizar, não por ódio ao tema, ma
 Tão bela de fora,<br>
 mesmo no barro de agora.<br>  
 Com mente de leão,<br>  
-e coração de papaya de mamão.<br>
+e coração de papaya de mamão.<br><br>
 
 Tão letal como um arco,<br>  
 tão resiliente quanto Joana d'arc.<br>  
 Que nem Sartre seria páreo,<br>  
-negaria dela ser cesáreo.<br>
+negaria dela ser cesáreo.<br><br>
 
 Embora não te veja,<br>  
 e talvez nunca esteja entre nós.<br>  
 Ainda remo por por moss,<br>  
-para escutar sua vóz.<br>
+para escutar sua vóz.<br><br>
 
 Talvez um sonho eterno incompleto,<br>  
 mas eterno sempre será.<br>  
